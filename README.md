@@ -1,0 +1,5 @@
+- 👋 Hii sayangg
+- 👀 I’m so understand about your activities
+- 📫 I know how tired you are
+- 🌱 Hope for goodness and happiness with you, always
+- 💞️ Love you
